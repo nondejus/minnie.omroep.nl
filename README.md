@@ -1,2 +1,0 @@
-# hollanse-kermisattractie
-MIVD
